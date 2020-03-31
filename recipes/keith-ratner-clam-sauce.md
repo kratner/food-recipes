@@ -59,3 +59,5 @@ Serve immediately. Optionally, top with shredded parmesan/asiago/romano cheese, 
 If you steamed fresh clams, place some shelled clams around the plate. It's all in the presentation.
 
 ENJOY!
+
+![Clam Sauce with Pasta Serving](images/keith-ratner-clam-sauce-04.png "Clam Sauce with Pasta Serving")
