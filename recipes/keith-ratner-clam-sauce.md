@@ -8,15 +8,17 @@ This recipe ultimately calls for clam meat. This can be sourced from fresh clams
 
 - 1-2 lbs. Fresh Clams (optional)
 - 1/2 lb. Clam Meat
-- 6-8 fresh garlic cloves, finely chopped/minced
+- 6-8 fresh garlic cloves, finely chopped/minced (add 4 cloves if you're making garlic bread)
 - 1 bunch Italian parsley, leaves finely chopped
-- 1/4 cup extra virgin olive oil
+- 1/4 cup extra virgin olive oil (1/2 cup if you're making garlic bread)
+- 1/4 stick of salted butter (optional)
 - 1/4 cup clam juice (either jarred or derived from fresh clams)
 - 1/2 cup white wine, either cooking wine or Chardonnay (optional)
 - 2 tablespoons sea salt (optional)
 - 2 tablespoons red pepper (optional)
 - 1 lb. pasta (linguine, angel hair, or pappardelle)
 - 2-3 tablespoons shredded parmesan/asiago/romano cheese (optional)
+- 1 loaf of Italian or French Bread (if you're making garlic bread)
 
 ## Fresh Clams
 
@@ -31,6 +33,16 @@ Utilize the resulting liquid for the clam juice.
 Traditionally, linguine has been the pasta of choice. However, this works great with angel hair. Most recently, I've been using pappardelle.
 
 Whichever pasta you choose, start cooking it first. You will be adding it in to the sauce once the sauce is ready, so it's best to get the pasta going early.
+
+## Garlic Bread
+
+In a large skillet, simmer a generous amount of minced garlic (3-4 tablespoons) along with optional 1/4 stick of butter in 1/4 cup extra virgin olive oil until garlic is lightly browned.
+
+Slice/split the bread. Place bread inside up on lined oven-safe pan. Spoon the mixture evenly over the inner surface of the bread. If you added salted butter, you can skip adding more salt. Otherwise, salt lightly.
+
+Bake at 250° while cooking the clam sauce and pasta. It should be perfectly done when you're ready to serve.
+
+Do not clean the skillet. It will be nicely coated for the clam sauce.
 
 ## Clam Sauce
 
