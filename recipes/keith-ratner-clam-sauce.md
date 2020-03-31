@@ -14,6 +14,7 @@ This recipe ultimately calls for clam meat. This can be sourced from fresh clams
 - 2 tablespoons sea salt (optional)
 - 2 tablespoons red pepper (optional)
 - 1 lb. pasta (linguine, angel hair, or pappardelle)
+- 2-3 tablespoons shredded parmesan/asiago/romano cheese (optional)
 
 ## Fresh Clams
 
@@ -43,11 +44,17 @@ Continue stirring.
 
 TASTE THE SAUCE. Adjust the flavoring accordingly. If you feel it needs some salt, add the sea salt now. Keep simmering.
 
+![Clam Sauce](images/keith-ratner-clam-sauce-01.png "Clam Sauce")
+
 The pasta should be ready. DO NOT DRAIN THE PASTA. Using tongs, pull the pasta out and add to the sauce.
 
 Gently stir the pasta and clam sauce while continuing to simmer. Toss the pasta until it is evenly coated. Simmer for an additional minute.
 
-Serve immediately.
+![Clam Sauce with Pasta](images/keith-ratner-clam-sauce-02.png "Clam Sauce with Pasta")
+
+Serve immediately. Optionally, top with shredded parmesan/asiago/romano cheese, but consider that the sauce should be naturally flavorful, even if you haven't added salt. The clam juice is saltwater. The cheese will add more saltiness.
+
+![Clam Sauce with Pasta Serving](images/keith-ratner-clam-sauce-03.png "Clam Sauce with Pasta Serving")
 
 If you steamed fresh clams, place some shelled clams around the plate. It's all in the presentation.
 
