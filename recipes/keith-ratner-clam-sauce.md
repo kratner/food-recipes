@@ -47,4 +47,8 @@ The pasta should be ready. DO NOT DRAIN THE PASTA. Using tongs, pull the pasta o
 
 Gently stir the pasta and clam sauce while continuing to simmer. Toss the pasta until it is evenly coated. Simmer for an additional minute.
 
-Serve immediately. ENJOY.
+Serve immediately.
+
+If you steamed fresh clams, place some shelled clams around the plate. It's all in the presentation.
+
+ENJOY!
