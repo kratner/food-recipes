@@ -1,4 +1,4 @@
-# Turkey Wing, Turkey Sausage, and Rice Soup
+# Dirty Chick Turkey Rice Stoup (Turkey Wing, Turkey Sausage, and Rice Soup)
 
 ## Kikibo Harris
 
