@@ -1,4 +1,4 @@
-# Falafel
+# Falafel [NOT FOR PUBLICATION]
 
 ## Laura Dean Koch
 
