@@ -1,4 +1,4 @@
-# Recipe – Tomato (Pasta) Sauce
+# Tomato (Pasta) Sauce
 
 ## Anthony Grisafi
 
